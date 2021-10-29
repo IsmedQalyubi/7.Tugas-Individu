@@ -17,5 +17,5 @@
 ![image](https://github.com/IsmedQalyubi/7.Tugas-Individu/blob/main/Screenshot%20(122).png) 
 3. Soal 3
 ![image](https://github.com/IsmedQalyubi/7.Tugas-Individu/blob/main/Screenshot%20(123).png) 
-![image](
+![image](https://github.com/IsmedQalyubi/7.Tugas-Individu/blob/main/Screenshot%20(124).png) 
 
