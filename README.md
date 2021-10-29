@@ -10,7 +10,7 @@
 ![image](https://github.com/IsmedQalyubi/7.Tugas-Individu/blob/main/Screenshot%20(118).png) 
 # Konsep 2
 1. Soal 1
-![image]( 
+![image](https://github.com/IsmedQalyubi/7.Tugas-Individu/blob/main/Screenshot%20(119).png) 
 ![image](
 2. Soal 2
 ![image](
