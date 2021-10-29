@@ -1,1 +1,3 @@
-# 7.Tugas-Individu
+# Konsep 1
+1. 
+
